@@ -1,1 +1,1 @@
-search for any cocktails and check out the ingredients.
+search for any cocktails and checkout the ingredients.
